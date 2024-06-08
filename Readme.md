@@ -1,1 +1,1 @@
-nothing to Learn
+nothing to execute , just learning
